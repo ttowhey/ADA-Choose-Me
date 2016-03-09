@@ -3,7 +3,7 @@
 Denver, CO 80205  
 360.490.5967  
 ttowhey@zagmail.gonzaga.edu   
-[Linked In Profile](https:/www.LinkedIn.com/in/TeaganTowhey)  
+[LinkedIn Profile](https:/www.LinkedIn.com/in/TeaganTowhey)  
 
 **Top 5 Skills:**    Motivated self-starter, solution-driven, persistent, naturally curious, and flexible.  
 
