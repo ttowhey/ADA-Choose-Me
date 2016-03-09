@@ -7,8 +7,7 @@
 
 ##** _Professional Experience_**  
 
-_Turning Technologies_ | Denver, CO  
-August 2014-Present  
+_Turning Technologies_ | Denver, CO  	_August 2014-Present_  
 ** Western Regional Sales Manager – Higher Education**   
 *  Surpassed 2014 Q4 goal by 4%, ended 2015 at 90% of goal, and projected sales achievement for 2016 is 95-105%.  
 * Supported the second ranked Account Executive for 2014; One AE inducted into the CEO Circle of Excellence.  
@@ -21,7 +20,7 @@ August 2014-Present
 * Created the Higher Education Sales Business Plans in 2014, 2015, and 2016; Creating 2016 Implementation Plan for new and current customers.  
 * Provide leadership and motivation to the Western Regional team as well as the Higher Education vertical.  
 
-_Pearson Education, Inc._ | Denver, CO                                _August 2013-August 2014_  
+_Pearson Education, Inc._ | Denver, CO                               	 _August 2013-August 2014_  
 ** Learning Technology Specialist – Higher Education – Professional and Career Division**   
 * Surpassed Q4 goal by 3% for a 6% increase in the Fall 2013 semester.  
 * As of August 2014, the territory was up by 18%; ended the year at approximately 25% beyond goal.  
@@ -44,11 +43,11 @@ _W.W.Norton_ | Des Moines, IA	_August 2009-July 2013_
 * Created high-quality action plans by accurately evaluating prospects’ needs, while negotiating with buyers to supply unique stock and ensure sell-through.  
 
 _Department of Social and Health Services_ | Olympia, WA	_February 2009-August 2009_  
-** On-call Counselor**   
+**On-call Counselor**   
 * Supported Dialectical Behavior Therapy and Integrated Treatment Models aimed at fostering more accepted and positive behavioral skills and reactions to stressors.  
 
 _Ross Printing Company_ | Spokane, WA	_August 2008-March 2009_  
-** Internship - Marketing Intern**   
+**Internship - Marketing Intern**   
 * Worked independently and in collaboration with management to reconstruct all online and print copy for booklets, brochures, product comparisons, mail campaigns, sales media and Q&A’s.  
 
 _W.W.Norton_ | New York, NY	_June 2008-August 2008_  
@@ -59,11 +58,11 @@ _W.W.Norton_ | New York, NY	_June 2008-August 2008_
 ##** _Education and Awards_**   
 
 _Gonzaga University_ | Spokane, WA	_August 2005-December 2008_  
-** Bachelor of Arts in Psychology – GPA 3.6**   
-•	English and History minors  	
+**Bachelor of Arts in Psychology – GPA 3.6**   
+	* English and History minors  	
 
 _Gonzaga University Women’s Rowing_ | Varsity Ranking 	_August 2005-August 2008_  
-** Teamwork, Tenacity, Passion and Time Management**   
+**Teamwork, Tenacity, Passion and Time Management**   
 * Won 11 gold and four silver medals and two qualifier spots in national and international competitions while also setting a record for the fasted time at PAC-10s.  
 * Nominated for Northwest National Crew of the Year (2006).  
 * Gained entry to an Olympic development camp in 2007; invited to join the prestigious NYAC camp in 2008.  
