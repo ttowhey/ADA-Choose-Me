@@ -2,7 +2,7 @@
 2500 Broadway Apt. 406  
 Denver, CO 80205  
 360.490.5967  
-ttowhey@zagmail.gonzaga.edu  
+ttowhey@zagmail.gonzaga.edu   
 [Linked In Profile](https:/www.LinkedIn.com/in/TeaganTowhey)  
 
 **Top 5 Skills:**    Motivated self-starter, solution-driven, persistent, naturally curious, and flexible.  
@@ -53,11 +53,11 @@ _Ross Printing Company | Spokane, WA	August 2008-March 2009_
 * Worked independently and in collaboration with management to reconstruct all online and print copy for booklets, brochures, product comparisons, mail campaigns, sales media and Q&A’s.  
 
 _W.W.Norton | New York, NY	June 2008-August 2008_  
-** Internship – Higher Education Division – Sales and Psychology Editorial Intern**   
+**Internship – Higher Education Division – Sales and Psychology Editorial Intern**   
 * Conducted the first 12-month retrospective quantitative report on US and Canadian sales to provide sales representatives with quantitative sales goals for the next fiscal year.  
 
 
-##** _Education and Awards_**   
+##**_Education and Awards_**   
 
 _Gonzaga University | Spokane, WA	August 2005-December 2008_  
 **Bachelor of Arts in Psychology – GPA 3.6**   
