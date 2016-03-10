@@ -57,7 +57,7 @@ _W.W.Norton | New York, NY	June 2008-August 2008_
 * Conducted the first 12-month retrospective quantitative report on US and Canadian sales to provide sales representatives with quantitative sales goals for the next fiscal year.  
 
 
-##**_Education and Awards_**   
+##**_Education, Awards and Service_**   
 
 _Gonzaga University | Spokane, WA	August 2005-December 2008_  
 **Bachelor of Arts in Psychology – GPA 3.6**   
@@ -69,11 +69,15 @@ _Gonzaga University Women’s Rowing | Varsity Ranking 	August 2005-August 2008_
 * Nominated for Northwest National Crew of the Year (2006).  
 * Gained entry to an Olympic development camp in 2007; invited to join the prestigious NYAC camp in 2008.  
 
-_Exec 1 Aviation | Ankeny, IA	July 2012- Present_  
+_OneIowa | Des Moines, IA	May 2012-August 2012_  
+**Phone Campaign Center**   
+* Volunteered once per week to ask for donations and to discuss if people knew who they were voting for; promoted healthy LBGT relations in the community via telecommunication.	
+
+_Exec 1 Aviation | Ankeny, IA	July 2012-Present_  
 **Private Pilot’s License**   
 * Through instruction, solo flying and testing obtained my private pilot’s license (VFR) and continue to fly for pleasure.  Working towards IFR certification.  		
 
 _United States Government Volunteer and Service Program | United States of America  
-			August 2001 - Present_  
+			August 2001-Present_  
 **Presidential Service Award, Call to Service (4,000+ hours)**   
 * Currently working with children diagnosed with cancer at the Blank Children’s hospital.  Past volunteer programs include developing an after school program for elementary children in low SES neighborhoods, working with children who have an IEP to identify successful learning strategies, mentoring ESL students at the university level, and volunteering abroad to further the education of women and children in rural Central America.  
